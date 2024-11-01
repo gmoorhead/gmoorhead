@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gmoorhead
-- 👀 I’m interested in starting a NFT Mortgaging Company
+- 👀 I’m interested in starting an NFT mortgaging company
 - 💞️ I’m looking to collaborate.
 - 📫 How to reach me if seeking employment opportunties: telegram: GastonJM
 
